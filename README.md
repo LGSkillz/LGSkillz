@@ -34,7 +34,7 @@ If you're an artist, producer, or creative looking to collaborate, let's connect
 https://www.instagram.com/lgskillz/?hl=en
 - Facebook: https://www.facebook.com/lg.skillz.7
 - Twitter: https://www.threads.net/@lgskillz
--Music In Africa: 
+-Music In Africa: https://www.musicinafrica.net/directory/lg-skillz.
 - YouTube: https://youtube.com/@lgskillz.?si=G9oyY1qylOzzuGQH
 Tiktok : https://www.tiktok.com/@lgskillzofficial?_t=ZM-8uFP9gH3evV&_r=1
 
