@@ -30,10 +30,11 @@ If you're an artist, producer, or creative looking to collaborate, let's connect
 
 - 📫 How to reach me
 
-- Instagram: https://youtube.com/@lgskillz.?si=G9oyY1qylOzzuGQH
-- Facebook: https://youtube.com/@lgskillz.?si=G9oyY1qylOzzuGQH
+- Instagram:
+https://www.instagram.com/lgskillz/?hl=en
+- Facebook: https://www.facebook.com/lg.skillz.7
 - Twitter: https://www.threads.net/@lgskillz
--Music In Africa:https://youtube.com/@lgskillz.?si=G9oyY1qylOzzuGQH
+-Music In Africa: 
 - YouTube: https://youtube.com/@lgskillz.?si=G9oyY1qylOzzuGQH
 Tiktok : https://www.tiktok.com/@lgskillzofficial?_t=ZM-8uFP9gH3evV&_r=1
 
